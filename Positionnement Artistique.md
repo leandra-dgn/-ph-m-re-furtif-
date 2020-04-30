@@ -1,0 +1,19 @@
+<u>**POSITIONNEMENT ARTISTIQUE**</u>
+
+
+
+        J'accorde énormément d'importance à la notion de corps et de ces multiples blessures, principalement la femme qui est à mon sens plus marqué à ce niveau. On nous éduque de plus en plus à apprivoiser une certaine culture de la "violence", cette installation sert à prendre du recul sur ce que nous sommes et ce que nous tendons à devenir de façon à mieux anticiper les répercussions sociales et éthiques sur notre avenir et notre place dans ce monde de plus en plus connecté et virtualiser.
+
+    Donna Haraway est une écrivaine que je suis et que j'apprécie particulièrement lire depuis le *Manifesto Cyborg* qui marque la naissance du cyberféminisme (science, technologie et féminisme socialiste). Haraway montre à travers cette métaphore que des choses qui semblent naturelles, comme le corps humain, ne le sont pas : elles sont construites par nos idées sur elles. Cette idée a un intérêt certain pour le féminisme, dans la mesure où les femmes sont souvent réduites à des corps.
+
+    Je me suis également intéressée aux représentations faite par un artiste tel que Hajime Sorayama avec ses pin-up hypperéalistes mêlant érotisme, fétichisme et science-fiction. Entre autre des femmes robots hyper-sexualisés. 
+
+    Cela m'a ammené à repartir à la source, l'origine des représentations de l'image de la femme dans l'art et plus particulièrement la peinture avec la série Ways of seeing de John Berger ou de la figure universel qu'est Vénus : *Ouvrir Venus* de Georges Didi-Huberman.
+
+    J'ai égalemet chercher sa représentation transposé dans une culture du divertissment plus actuelle comme avec Nova Corp. Il s'agissait ici de prendre du reccul et d'analyser des choses récurrentes et significatives dans le monde de la science-fiction où les personnages féminins manquent cruellement de profondeur.
+
+    Je cherche volontairement à créer un espèce de "flou temporel", une "faille", à mi-chemin entre passé et futur. Sabrina Ratté l'explore pas mal dans son oeuvre en retransposant des formes, couleurs, textures auquelles ont s'identifient pour les transposer dans des univers plus contemporain et évolué. 
+
+    Chez Rosa Menkman c'est la notion de glitch qui m'intéresse tout particulièrement car je cherchais une espèce d'esthétique de la destruction et de la déterioration, la façon dont elle pousse le logiciel à saturer et à produire des images impressionnantes m'a éclairé sur la façon dont je devais mettre en place cette esthétique. Le spectateur est de plus en plus déboussolé, en perte de repères.
+
+    Françoise Gamma : Ses personnages-avatars nous parlent de tout ce qui est hors image, clichés, émotions que l’on colle si facilement sur eux, éternité d’un moment présent sans passé et sans futur. Elle crée un monde complexe, organique et cybernétique à la fois, un instantané de post-humanité en mouvement perpétuel arrêté.
