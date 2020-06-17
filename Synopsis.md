@@ -1,3 +1,0 @@
-<u>**SYNOPSIS**</u>
-
-        Le projet se présente sous la forme d'une application VR. Le spectateur est dans un espace clos, il porte un caqsque VR et se balade dans l'environnement virtuel. La scène comporte plusieurs "poles" avec différentes compositions de sculptures, lorsque le spectateur pénètre l'une d'entre-elles, ils déclenchent de nouveaux comportements laissant place à une vision aléatoire et chaotique de l'espace.  L'échelle du spectateur est minimisé par rapport à l'espace et aux compositions pour créer une sensation d'inferiorité, de non-pouvoir et contrôle sur la chose. Le son lui vient de façon ponctuelle de manière plus ou moins intensifier en fonction de son positionnement dans la scène.
