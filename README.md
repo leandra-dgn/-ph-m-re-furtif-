@@ -1,6 +1,6 @@
 # Venusoïde
 
-par Léandra Di giuggno
+par Léandra Di giugno
 
  Une installation audio-visuelle à vocation contemplative. Un univers illusoire , sanctuaire de la beauté superficielle qui  menace de s'éffondrer à tout moment.
 
