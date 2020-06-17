@@ -18,4 +18,4 @@ Découvrez et explorez les idées du projett. Actuellement étant disponible qu'
 
 ○  Télécharger la démo:  https://drive.google.com/drive/folders/1tJyIj77fl7y_ksim3FthVt1nXVlzAD-H
 
-○ Site hébergement d'images et vidéo du projet :  https://venusoide.myportfolio.com/
+○ Site hébergement : [Découvrez captures d'écrans, images, vidéo, documentation... du projet](https://venusoide.myportfolio.com/)
