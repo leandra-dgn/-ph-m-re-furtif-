@@ -14,7 +14,7 @@ Découvrez et explorez les idées du projett. Actuellement étant disponible qu'
 
 # Liens externes
 
-○ Mes influences :  https://www.pinterest.fr/landradigiugno/temporalite-mouv/
+○ Mes influences :  [Pinterest, épingle du tableau temporalité/mouvement](https://www.pinterest.fr/landradigiugno/temporalite-mouv/)
 
 ○  Télécharger la démo:  https://drive.google.com/drive/folders/1tJyIj77fl7y_ksim3FthVt1nXVlzAD-H
 
