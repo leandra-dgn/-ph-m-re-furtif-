@@ -22,4 +22,4 @@ Découvrez et explorez les idées du projett. Actuellement étant disponible qu'
 
 ○ Site hébergement : [Découvrez captures d'écrans, images, vidéo, documentation... du projet](https://venusoide.myportfolio.com/)
 
-○ Vidéo de présentation, disponible aussi  [ici](https://youtu.be/aQOvakRtZSE)
+○ Vidéo de présentation,  également disponible sur [Youtube](https://youtu.be/aQOvakRtZSE)
